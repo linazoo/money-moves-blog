@@ -48,7 +48,7 @@ NO RACISM, SEXISM, XENOPHOBIA, HOMOPHOBIA, FATPHOBIA, TRANSPHOBIA IN 👏 THIS �
 
 if you’re looking to reach the Money Moves audience with your business. The Community Club isn’t that space.
 You get one warning if you promote your business using the group as a platform. Strike two and we remove you.
-Here’s the thing. There is a gray area between promoting your business and sharing your success. We’ll try to make it easier:
+Here’s the thing. There is a gray area between promoting your business and sharing your success. To try to make it easier:
 
 #### Celebrate don’t sell
 
@@ -56,8 +56,7 @@ Solicit conversations don’t solicit clicks
 
 #### Respect don’t recruit
 
-If you’re still not sure about whether or not your post counts as a business promotion, we have the #selfpromo thread every Thursday where you can post that gray area stuff.  
-This especially applies to Multi-Level Marketing recruitment. If another group member reports you for recruiting for an MLM, we will remove you from the group on strike one.
+This especially applies to Multi-Level Marketing recruitment. If another group member reports you for recruiting for an MLM, I will remove you from the group on strike one.
 
 ## What it boils down to:
 
@@ -66,7 +65,7 @@ Be Open, Be Aware, Be Empathetic, Be Productive & Be Kind
 1. BE OPEN (Liberated Zone) 💬
    This is the supportive space to say it, ask it, and question it.
    Speak from a place of “I” (don’t generalize your experiences to others) and own your ignorance - we’re all here to learn together. That being said, expect to be held accountable for your words.
-   Invite discussion. Think about how you’re phrasing your posts, and make sure it’s clear that you’re open to discussion.
+   Invite discussion. Think about how you’re phrasing your thoughts, and make sure it’s clear that you’re open to discussion.
 
 2. BE AWARE (Step Up Step Down) 👀
    We all have different experiences and it’s important to be aware of this when you’re speaking from a place of privilege re: gender, class, race, or sexual orientation. Check yourself.
@@ -76,8 +75,6 @@ Be Open, Be Aware, Be Empathetic, Be Productive & Be Kind
    We are not here to judge anyone or each other
 
 4. BE KIND (R-E-S-P-E-C-T) 💕
-   The Golden Rule and all that. Money is touchy and we all have different backgrounds, experiences, and attitudes about it. Respect that and convey your point with the other person’s perspective in mind. We’re all here to learn together and from each other!3
+   The Golden Rule and all that. Money is touchy and we all have different backgrounds, experiences, and attitudes about it. Respect that and convey your point with the other person’s perspective in mind. We’re all here to learn together and from each other!
 
-Money Moves was inspired by She Spends and its guidelines and content.
-#shinetheory theory developed by Ann Friedman
-We referenced and were inspired by New Women Space’s community guidelines and Fordham University’s Women’s Empowerment community guidelines. For more information, reach out to Jemma Frost from She Spends
+Money Moves references and these guidelines directly reference the financial blog 'She Spends' their guidelines and content. Please e-mail muralnomad@gmail.com if you have any questions. We also referenced and were inspired by New Women Space’s community guidelines and Fordham University’s Women’s Empowerment community guidelines.
