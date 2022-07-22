@@ -1,5 +1,5 @@
 ---
-title: Our First Meet up 🥲 & Money Avoidance
+title: Our First Meet up 🥲
 date: "2022-06-10"
 ---
 
