@@ -34,9 +34,13 @@ An excellent suggestion for grocery shopping while still supporting your local f
 Here is some information I found about CSAs in Austin TX:
 
 [Local Harvest](https://www.localharvest.org/austin-tx/csa)
+
 [Farm Stand](https://www.nationalfarmstand.com/shop-farmstands-homepage-launch)
+
 [The Best CSAs and Meat Delivery Services in Austin:](https://austin.eater.com/2020/7/2/21307517/best-csas-meat-delivery-services-austin-farms-texas)
+
 [1915 Farm](https://1915farm.com/)
+
 [Buck Creek Meats](https://www.buckcreekmeat.com/)
 
 We spoke about getting started with investments, being cautious but also taking some risks when it comes to a brokerage account and other investments like crypto.
@@ -45,18 +49,17 @@ We spoke about scams and how some of us have been scammed but were fortunate eno
 ### Here are some more resources yall mentioned yesterday:
 
 [Wealth front: investing app (ETFs, Mutual Funds)](https://www.wealthfront.com/)
+
 [Books: Financial Diet (linking to podcast) and Latte Factor](https://thefinancialdiet.com/)
+
 [MyBFF: Women in crypto and WEB3](https://www.mybff.com/)
+
 [@geobreezetravel (credit card hacking advice) pdocast interviews travel hackers](https://www.instagram.com/geobreezetravel/?hl=en)
 
 I’ll be in touch soon with info around August’s MM session! Please reach out if you want to request a Hot Topic or if there is something you’re dying to share. Some of us were interested in how to go into the Freelancing world and what that would look like for our financial planning. Some of yall sound like PROs already and we would love to hear about how you were able to get there. If you’re not a PRO yet, but you’re still going through it we would love to hear that as well.
 
 As always, I’m feeling SO HAPPY about hosting this club and I would love to make it better because I want us to keep meeting and having these conversations. If anyone is interested in joining a Money Moves Slack channel let me know and I can create one for us to keep in touch that way as well.
 
-- If you have any friends who are interested in signing up, tell them to [email me](muralnomad@gmail.com)
-
-- If you aren't already a member of Future Front and want to learn more, [check this out](https://futurefronttexas.org/membership)
-
-- If you'd like to donate to Future Front to continue supporting programming like Community Clubs, [you can here](https://futurefronttexas.org/donate)
+Have a nice weekend!
 
 ~ Lina
