@@ -4,7 +4,7 @@ date: "2022-06-09"
 description: "Money Moves Club Guidelines"
 ---
 
-## Money Moves Community Rules & Guidelines1
+## Money Moves Community Rules & Guidelines
 
 ### v.2.2 / March 2022
 
@@ -26,15 +26,9 @@ The Host (Lina) is here to keep the conversations on track (be patient I will ge
 
 ### Schedule
 
-#### First Meeting Agenda (Jun 9, 2022)
+#### Meeting Structure
 
-6:00 - 6:10 Ice breaker (what made you want to join? what came to mind, and what do you want to learn?)
-
-6:10 - 6:25 How did Money Moves come about? Club goals & guidelines & your host.
-
-6:25 - 6:50 Hot topics & Wins: Let's talk money avoidance & tips on how to cope
-
-6:50 - 7:00 Closing remarks & next steps
+I will start our conversation with some intersting insights I find about the current state of affairs when it comes to finances (if any) or personal stories. From there we can all participate and share our own strategies ("how I go about paying my credit cards every month", "how I set up my automatic investments month") or you can just listen to everyone else talking. No pressure, no shame, no guilt no judgement!
 
 ### Community Guidelines
 
@@ -46,7 +40,7 @@ NO RACISM, SEXISM, XENOPHOBIA, HOMOPHOBIA, FATPHOBIA, TRANSPHOBIA IN 👏 THIS �
 
 ### No business promotions
 
-if you’re looking to reach the Money Moves audience with your business. The Community Club isn’t that space.
+If you’re looking to reach the Money Moves audience with your business. The Community Club isn’t that space.
 You get one warning if you promote your business using the group as a platform. Strike two and we remove you.
 Here’s the thing. There is a gray area between promoting your business and sharing your success. To try to make it easier:
 
@@ -74,7 +68,10 @@ Be Open, Be Aware, Be Empathetic, Be Productive & Be Kind
 3. BE EMPATHETIC
    We are not here to judge anyone or each other
 
-4. BE KIND (R-E-S-P-E-C-T) 💕
+4. BE PRODUCTIVE
+   We are here to learn, we are not here to argue or compare ourselves to each other. Everyone's journey is different and thats what we are here to embrace!
+
+5. BE KIND (R-E-S-P-E-C-T) 💕
    The Golden Rule and all that. Money is touchy and we all have different backgrounds, experiences, and attitudes about it. Respect that and convey your point with the other person’s perspective in mind. We’re all here to learn together and from each other!
 
 Money Moves references and these guidelines directly reference the financial blog 'She Spends' their guidelines and content. Please e-mail muralnomad@gmail.com if you have any questions. We also referenced and were inspired by New Women Space’s community guidelines and Fordham University’s Women’s Empowerment community guidelines.
